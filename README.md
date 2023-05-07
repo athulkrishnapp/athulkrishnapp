@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @athulkrishnapp
+- 👀 I’m interested in doing interships
+- 🌱 I’m currently learning BCA
+- 💞️ I’m passionate about studing more in this field
+- 📫 athulkrishnapp5833@gmail.com
